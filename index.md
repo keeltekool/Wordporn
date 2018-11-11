@@ -3222,7 +3222,7 @@ Kui soovid vestlustes olla eriti sõnaosav ja sõna otseses mõttes roimata oma 
 *   Disstract
 *   ahh kurat, nali ju
 *   Voidab see kellel on surres rohkem asju
-*   Pauguta
+*   Paugutan ringi
 *   Ärka enne kui täitsa närts
 *   Neela lotva vanemuine
 *   Nihilistfm
