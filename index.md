@@ -1,7 +1,7 @@
 ---
 date: '2018-11-11T16:34:43.069Z'
 ---
-# <a id="_7sjz6jdqiiu"></a><a id="_2begig9bq4a8"></a><a id="_61hx8fq5gxm0"></a>KEELETEADLANE 909
+# <a id="_61hx8fq5gxm0"></a>
 
 Kui soovid vestlustes olla eriti sõnaosav ja sõna otseses mõttes roimata oma vestluskaaslasi über advance kalambuuriga, siis viska viis, subscribe või bookmark
 
