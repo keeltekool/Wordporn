@@ -6,6 +6,7 @@ date: '2018-11-11T16:34:43.069Z'
 Kui soovid vestlustes olla eriti sõnaosav ja sõna otseses mõttes roimata oma vestluskaaslasi über advance kalambuuriga, siis viska viis, subscribe või bookmark
 
 *   Uputab... (korvpallis skoorimise kohta)
+*   Mingid tyybid tulid suruma
 *   Lilliputin - teadagi kes.
 *   Vanamees alias Vana mees
 *   vaimne prostitutsioon  - see mida mina teen
