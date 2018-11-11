@@ -3,7 +3,7 @@ date: '2018-11-11T16:34:43.069Z'
 ---
 # <a id="_5dvxpxlhiaem"></a>KEELETEADLANE 909
 
-Kui soovid vestlustes olla eriti sõnaosav ja sõna otseses mõttes roimata oma vestluskaaslasi ümber advance kalambuuriga, siis viska viis, subscribe või bookmark
+Kui soovid vestlustes olla eriti sõnaosav ja sõna otseses mõttes roimata oma vestluskaaslasi über advance kalambuuriga, siis viska viis, subscribe või bookmark
 
 *   Uputab... (korvpallis skoorimise kohta)
 *   Lilliputin - teadagi kes.
