@@ -5,6 +5,8 @@ date: '2018-11-11T16:34:43.069Z'
 
 Kui soovid vestlustes olla eriti sõnaosav ja sõna otseses mõttes roimata oma vestluskaaslasi über advance kalambuuriga, siis viska viis, subscribe või bookmark
 
+![](../../../../images/img-4cbc002e-516e-4aba-b82a-5942d83cb753.png)
+
 *   Uputab... (korvpallis skoorimise kohta)
 *   Mingid tyybid tulid suruma
 *   Lilliputin - teadagi kes.
