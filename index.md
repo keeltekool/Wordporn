@@ -5,7 +5,7 @@ date: '2018-11-11T16:34:43.069Z'
 
 Kui soovid vestlustes olla eriti sõnaosav ja sõna otseses mõttes roimata oma vestluskaaslasi über advance kalambuuriga, siis viska viis, subscribe või bookmark
 
-![](../../../../images/img-dd12fc86-c4d3-4563-a4b8-05ff188825e4.png)
+![](../../../../images/img-71bc74a4-d038-4e63-ab2f-f2d32fd95339.jpg)
 
 Ütle, miks pilt ei funka:
 
